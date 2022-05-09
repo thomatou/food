@@ -27,3 +27,4 @@ Put back in the oven for another 20 min, until the top has an amber colour.
 
 Give the clafoutis a couple of hours to cool before digging in; it's usually better the next day. 
 
+Add orange flower
