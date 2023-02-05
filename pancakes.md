@@ -10,5 +10,6 @@
 * 1/4 cup vegetable oil
 * 1 tbsp vanilla extract
 * 1/4 cup apple cider vinegar
+* 3 eggs
 
 Make sure to not overstir the batter, mix with a spoon as opposed to a whisk, you want lumps to remain in the bowl. 
