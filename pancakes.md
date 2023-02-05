@@ -13,3 +13,20 @@
 * 3 eggs
 
 Make sure to not overstir the batter, mix with a spoon as opposed to a whisk, you want lumps to remain in the bowl. 
+
+For a 1/3 recipe
+### Dry ingredients
+* 1 cup AP flour = 137 g
+* 20 g sugar
+* 1/2 tsp salt
+* 1/2 tsp + 1 tsp baking powder
+* 1/2 tsp baking soda
+
+### Wet ingredients
+* 177 g milk
+* 10 g vegetable oil (4 tsp)
+* 1 1/2 tsp vanilla extract
+* 15 g apple cider vinegar (4 tsp)
+* 1 egg
+
+Make sure to not overstir the batter, mix with a spoon as opposed to a whisk, you want lumps to remain in the bowl. 
