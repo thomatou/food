@@ -9,3 +9,11 @@ After that time, autolyse 302 g white flour, 138 g whole wheat flour in 342 g wa
 Addition of overnight oats: 
 Prepare levain as usual. 
 At the same time, mix 100 g rolled oats with 200 g water. 
+880 g WWF
+200 g oats
+400 g of water added to the oats
+518 g water
+206 g levain
+
+
+Next time, only mix equal weight oats with equal weight water so no need to fiddle with hydration calculation
