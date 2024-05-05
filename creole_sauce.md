@@ -10,3 +10,4 @@ First make an epis by blending:
 - olive oil
 - 1 white onion
 - 1 bunch scallions
+- white vinegar
