@@ -4,10 +4,10 @@ Adapted from Sweet Lo’s Cookies N Cream Recipe
 
 
 
-* 1 1/2 cup heavy cream 
-* 1 1/2 cup whole milk 
+* 355 mL (1 1/2 cup) heavy cream 
+* 355 mL (1 1/2 cup) whole milk 
 * 1/2 cup non fat dry milk powder 
-* 3/4 cup white sugar 
+* 150 g white sugar 
 * Scant 1/4 tsp salt 
 * 3 egg yolks 
 * Splash of good quality vanilla extract 
