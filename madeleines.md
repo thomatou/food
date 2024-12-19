@@ -2,6 +2,8 @@ From Neil Borthwick, The French House
 
 ## Ingredients
 
+Makes 24 large madeleines
+
 | Quantity | Ingredients          |
 |----------|----------------------|
 | 100g     | plain flour          |
